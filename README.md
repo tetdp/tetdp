@@ -8,4 +8,4 @@
 
 -📫 Reach me at LinkedIn : https://www.linkedin.com/in/abdullah-abdulrahman-7084a4350
 
--📧 Email: abdullahamahli@gmail.com
+-📧 Email : abdullahamahli@gmail.com
